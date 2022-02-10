@@ -1,2 +1,0 @@
-# fayrush.github.io
-hey
